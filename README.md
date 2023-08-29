@@ -8,6 +8,8 @@ I am a semanticist/pragmaticist. Currently, I am interested in and working on:
 - particles like _okay_
 - formal models of these phenomena
 
+I am also interested in logic and mathematics.
+
 Some random facts:
 - I am a big fan of strength sports: currently working on my first 200kg conventional deadlift! (currently at 180kg)
 - I love metal music

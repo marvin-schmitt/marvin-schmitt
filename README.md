@@ -19,7 +19,7 @@ I am currently studying _A shorter model theory_ by Wilfrid Hodges for my PhD th
 
 I am generally happy to collaborate on any of the above topics.
 
-Best to reach me via email: marvinXschmitt(fancy symbol)web.de where X is the solution to six plus six plus two.
+Best to reach me via email: _marvinschmittlinguistics@gmail.com_
 
 <!---
 - 👋 Hi, I’m @marvin-schmitt

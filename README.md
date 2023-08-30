@@ -19,7 +19,7 @@ I am currently studying _A shorter model theory_ by Wilfrid Hodges for my PhD th
 
 I am generally happy to collaborate on any of the above topics.
 
-Best to reach me via email: _marvinschmittlinguistics@gmail.com_
+Best to reach me via email: _[firstnamelastname]linguistics[fancy a]gmail.com_
 
 <!---
 - 👋 Hi, I’m @marvin-schmitt
